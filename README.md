@@ -1,1 +1,0 @@
-# bible-quiz2
